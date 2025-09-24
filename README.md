@@ -1,1 +1,0 @@
-# Yaroslav-Mudri-3
